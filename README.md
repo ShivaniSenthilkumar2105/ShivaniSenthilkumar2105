@@ -122,6 +122,6 @@ A wearable, **tamper-evident patch** that monitors sweat biomarkers continuously
 ## 📬 Connect With Me
 
 - Happy to talk about chess, learning to code, and building student-friendly tech.
-- Reach me on [LinkedIn](https://www.linkedin.com/in/YOUR-LINKEDIN-ID) or at **YOUR-EMAIL@gmail.com**.
+- Reach me on [LinkedIn]www.linkedin.com/in/shivani-senthilkumar-bb5580443 or at **shivanisenthilkumar2105@gmail.com**.
 
 *Every move counts. Still learning, still improving.* ♟️
