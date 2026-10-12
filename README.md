@@ -104,10 +104,9 @@ A wearable, **tamper-evident patch** that monitors sweat biomarkers continuously
 
 ## 🏆 Achievements
 
-- ♟️ **National Chess Champion**
+- ♟️ **Multiple-Time National Medalist in Chess**
 - 🌍 Represented **India** at international events in multiple countries
-- 🥇 **Medal winner** at the international level
-- 🎓 Undergraduate student at **St. Joseph's Engineering College**
+- 🎓 Student in Bachelor of Technology (B.Tech) Information Technology at **St. Joseph's Engineering College**
 
 ---
 
